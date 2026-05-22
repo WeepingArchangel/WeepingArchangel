@@ -11,6 +11,10 @@
 
 𝙷𝚎𝚕𝚕𝚘, 𝚈𝚘𝚞 𝚖𝚊𝚢 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙸𝚟𝚊𝚛𝚢 𝚘𝚛 𝚂𝚘𝚕𝚛𝚘𝚜. 𝙽𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜 𝚊𝚛𝚎 𝚊𝚕𝚕𝚘𝚠𝚎𝚍. 
 
+𝙲𝚞𝚍𝚍𝚕𝚒𝚗𝚐 𝚘𝚛 𝚑𝚞𝚐𝚐𝚒𝚗𝚐 𝚒𝚜 𝙲𝚘𝚖𝚙𝚕𝚎𝚝𝚎𝚕𝚢 𝚏𝚒𝚗𝚎 𝚠𝚒𝚝𝚑 𝚖𝚎. 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚒𝚗𝚝 𝚒𝚏 𝚕𝚘𝚗𝚎𝚕𝚢. 
+
+𝙸 𝚍𝚘 𝚗𝚘𝚝 𝚝𝚘𝚕𝚎𝚛𝚊𝚝𝚎 𝚒𝚗𝚝𝚒𝚖𝚊𝚝𝚎 𝚘𝚛 
+
 
 
 <img align="right" width="200" src="https://github.com/Unnamed-Prussian-Officer/Unnamed-Prussian-Officer/blob/4e035d59e474bc5bdc3b83fb859d9578d5801989/Untitled1292_20260522200702.png">
