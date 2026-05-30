@@ -1,11 +1,11 @@
 <p align="center">
-<img align="" width="10000000" src="https://github.com/Unnamed-Prussian-Officer/Unnamed-Prussian-Officer/blob/4e035d59e474bc5bdc3b83fb859d9578d5801989/Untitled1291_20260522195429.png ">
+<img align="" width="10000000" src="https://github.com/Ivan-Badthings/Ivan-Badthings/blob/3359642339b66cad77c02a2eda610a94845b78e9/Untitled1291_20260530114918.png">
 
 <img align="left" width="200" src="https://github.com/Unnamed-Prussian-Officer/Unnamed-Prussian-Officer/blob/4e035d59e474bc5bdc3b83fb859d9578d5801989/Untitled1292_20260522200957.png">  
 
-'( 𝑊ℎ𝑎𝑡 𝑐𝑜𝑢𝑙𝑑 ℎ𝑒 𝑑𝑜? 𝑠ℎ𝑜𝑢𝑙𝑑 ℎ𝑎𝑣𝑒 𝑏𝑒𝑒𝑛 𝑎 𝑝𝑜𝑙𝑖𝑡𝑖𝑐𝑖𝑎𝑛.) '
+'( 𝑌𝑜𝑢𝑣𝑒 𝑏𝑒𝑒𝑛 𝑤𝑎𝑙𝑘𝑖𝑛𝑔.. 𝑦𝑜𝑢𝑣𝑒 𝑏𝑒𝑒𝑛 ℎ𝑖𝑑𝑖𝑛𝑔...) '
 
-'𝐵𝑢𝑡 ℎ𝑒 𝑛𝑒𝑣𝑒𝑟 ℎ𝑎𝑑 𝑎 𝑝𝑟𝑜𝑝𝑒𝑟 𝑒𝑑𝑢𝑐𝑎𝑡𝑖𝑜𝑛.'
+'𝑎𝑛𝑑 𝑦𝑜𝑢 𝑙𝑜𝑜𝑘 ℎ𝑎𝑙𝑓-𝑑𝑒𝑎𝑑 𝑎𝑡 𝑡ℎ𝑒 𝑡𝑖𝑚𝑒. .'
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
