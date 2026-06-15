@@ -7,7 +7,10 @@
 
 '𝑎𝑛𝑑 𝑦𝑜𝑢 𝑙𝑜𝑜𝑘 ℎ𝑎𝑙𝑓-𝑑𝑒𝑎𝑑 𝑎𝑡 𝑡ℎ𝑒 𝑡𝑖𝑚𝑒. .'
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+༒<img width="9%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/c76a6a75f34f4ce174d2768a23bcdeddeb328b6a/ed3ba2f08b691d6ba5815fb2a623a275.gif" /> .. 
+<img width="9%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/c76a6a75f34f4ce174d2768a23bcdeddeb328b6a/2767526d244bbe778cda4360683470a1.gif  " /> .. 
+<img width="9%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/c76a6a75f34f4ce174d2768a23bcdeddeb328b6a/9178bcccc9f68340f1a5a746b6625e7e.gif  " /> ༒
+
 
 𝙷𝚎𝚕𝚕𝚘, 𝚈𝚘𝚞 𝚖𝚊𝚢 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙸𝚟𝚊𝚛𝚢 𝚘𝚛 𝚂𝚘𝚕𝚛𝚘𝚜. 𝙽𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜 𝚊𝚛𝚎 𝚊𝚕𝚕𝚘𝚠𝚎𝚍. 
 
