@@ -13,6 +13,6 @@ TEXT
 <img width="11%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_557624406006501.gif" />
 
 
-<img width="11%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558376583853870.gif" /> TEXT    
+<img width="40%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558376583853870.gif" /> . . . <img width="40%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558378222238088.gif" />   
 
 
