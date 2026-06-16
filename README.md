@@ -27,3 +27,6 @@
 @eggchannie- 𝚖𝚢 𝚌𝚑𝚒𝚕𝚍, 𝚍𝚘 𝚗𝚘𝚝, 𝚊𝚗𝚍 𝙸 𝚛𝚎𝚙𝚎𝚊𝚝. 𝙳𝙾 𝙽𝙾𝚃 𝚝𝚑𝚒𝚗𝚔 𝚠𝚎𝚛𝚎 𝚍𝚊𝚝𝚒𝚗𝚐. 𝚝𝚑𝚊𝚝 𝚒𝚜 𝚖𝚢 𝚌𝚑𝚒𝚕𝚍. 
 
 @Pixelbrickz- 𝚂𝚠𝚎𝚎𝚝𝚎𝚜𝚝 𝚘𝚘𝚖𝚏, 𝚜𝚘 𝚞𝚗𝚏𝚘𝚛𝚝𝚞𝚗𝚊𝚝𝚎 𝚠𝚎 𝚑𝚊𝚟𝚎 𝚍𝚒𝚏𝚏𝚎𝚛𝚎𝚗𝚝 𝚝𝚒𝚖𝚎 𝚣𝚘𝚗𝚎𝚜. 
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316gy32cntgsd2utmam3a6janqu4&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=737373&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
