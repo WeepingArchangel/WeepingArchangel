@@ -1,4 +1,4 @@
-<img align="left" width="300" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda59938657ee1d0f4df7290953341658/Untitled1333_20260617092106.png"> 
+<img align="left" width="200" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda59938657ee1d0f4df7290953341658/Untitled1333_20260617092106.png"> 
 WIP
 <div align="center"
 
