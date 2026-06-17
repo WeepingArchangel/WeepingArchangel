@@ -1,5 +1,8 @@
 <img align="left" width="200" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda59938657ee1d0f4df7290953341658/Untitled1333_20260617092106.png"> 
 WIP
+
+<img width="100%"
+src="https://github.com/WeepingArchangel/WeepingArchangel/blob/c67360becd2b0ee3190157aff4e3a488e2df093a/Tumblr_l_582385746169347.jpg" />
 <div align="center"
 
 
