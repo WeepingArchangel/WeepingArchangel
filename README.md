@@ -3,7 +3,7 @@
 src="https://github.com/WeepingArchangel/WeepingArchangel/blob/c67360becd2b0ee3190157aff4e3a488e2df093a/Tumblr_l_582385746169347.jpg" />
 <div align="center"
 
-<img align="left" width="200" 
+  <img align="left" width="250" 
 src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda59938657ee1d0f4df7290953341658/Untitled1333_20260617092106.png"> 
 Best viewed in PC! <img width="9%" src="Tumblr_l_606934553729253.gif" />
 
