@@ -5,7 +5,7 @@ src="https://github.com/WeepingArchangel/WeepingArchangel/blob/c67360becd2b0ee31
 
 <img align="left" width="200" 
 src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda59938657ee1d0f4df7290953341658/Untitled1333_20260617092106.png"> 
-Best viewed in PC! 
+Best viewed in PC! <img width="9%" src="Tumblr_l_606934553729253.gif" />
 
 Wipp
 
