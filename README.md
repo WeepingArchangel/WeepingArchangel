@@ -5,14 +5,11 @@ src="https://github.com/WeepingArchangel/WeepingArchangel/blob/c67360becd2b0ee31
 
   <img align="left" width="250" 
 src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda59938657ee1d0f4df7290953341658/Untitled1333_20260617092106.png"> 
-Best viewed in PC! <img width="9%" src="Tumblr_l_606934553729253.gif" />
+🧾. 𝙄𝑣𝑎𝑟𝑦 ┆ 𝙎𝑜𝑙𝑟𝑜𝑠. <img width="9%" src="Tumblr_l_606934553729253.gif" />
 
-Wipp (I am REMAKING this AGAIN 😭😭😭😭) 
+︴ 𝓤𝑠𝑢𝑎𝑙𝑙𝑦 𝑜𝑓𝑓𝑡𝑎𝑏! ✦ 𝐶+ℎ 𝑒𝑛𝑐 𝑢𝑛𝑙𝑒𝑠𝑠 𝑑𝑛𝑖! ⊹˙
 
-my name is Ivary/Solros for now ok? skedaddlws
-
-
-<img width="100%"
+<img  width="100%"
 src="https://github.com/WeepingArchangel/WeepingArchangel/blob/3826baf222e160f14f30749aec278a818bad89c3/Tumblr_l_573648004826899.gif" />
 
 <img width="20%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558330816295190.jpg" />
