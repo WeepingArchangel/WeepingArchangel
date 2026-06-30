@@ -9,14 +9,17 @@ src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda5993865
 
 ︴ 𝓤𝑠𝑢𝑎𝑙𝑙𝑦 𝑜𝑓𝑓𝑡𝑎𝑏! ✦ 𝐶+ℎ 𝑒𝑛𝑐 𝑢𝑛𝑙𝑒𝑠𝑠 𝑑𝑛𝑖! ⊹˙
 
-<img  width="100%"
-src="https://github.com/WeepingArchangel/WeepingArchangel/blob/3826baf222e160f14f30749aec278a818bad89c3/Tumblr_l_573648004826899.gif" />
 
 <img width="20%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558330816295190.jpg" />
 
 <img width="11%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558003541729325.jpg" />
 <img width="11%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_557728071282659.jpg" />
 <img width="11%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_557624406006501.gif" />
+
+
+<img  width="90%"
+src="Tumblr_l_98390951481943.jpg" />
+
 
 
 <img width="40%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558376583853870.gif" /> . . . <img width="40%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_558378222238088.gif" />   
